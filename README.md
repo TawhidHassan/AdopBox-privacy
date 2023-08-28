@@ -1,0 +1,1 @@
+# AdopBox-privacy
